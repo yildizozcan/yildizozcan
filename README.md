@@ -1,5 +1,5 @@
 # 💫 About Me:
-![image](https://github.com/yildizozcan/yildizozcan/assets/129951908/8f7470ee-6c22-481a-a881-bd1e628b6f88)I'm currently working on data.
+🔭I'm currently working on data.
 
 
 ## 🌐 Socials:
